@@ -21,7 +21,3 @@ In four different places, the same thought crept into their minds, uninvited.
 And somewhere above the city, in a quiet room with floor-to-ceiling windows, a man sat in a leather chair, watching four small red dots blink steadily on a dark screen. He leaned back, lips curling into the faintest smile.
 
 The game had only begun.
-
----
-
-If you want, I can make **Chapter 4** where the antagonist triggers the first coordinated “test” for the girls, so the stakes suddenly spike and they begin moving toward their first point of indirect contact.
