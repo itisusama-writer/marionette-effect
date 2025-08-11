@@ -6,15 +6,15 @@ Detective Rahim stood over the open parcel, the faint hum of the small black dev
 
 “No fingerprints,” his partner muttered. “Cash looks clean too, probably untraceable. And this thing” he pointed to the device “feels like a toy until you notice it’s broadcasting something.”
 
-Rahim’s brow furrowed. “So we’ve got a mystery benefactor delivering… what? A bribe? A warning?”
+Rahim’s brow furrowed. “So we’ve got a mystery benefactor delivering... what? A bribe? A warning?”
 
 He tapped the photo taped to the lid. Four young women, their faces hidden in shadow, walking away into the night. It didn’t match any gang drop-off style he’d seen. No drugs, no contraband. Just money and an eerie little gadget.
 
-“Whoever they are,” Rahim said, “they knew exactly where to walk, how to avoid cameras… mostly.” He gestured toward the street camera footage now looping on his tablet. The clip showed the girls crossing the street, keeping perfect distance, not speaking.
+“Whoever they are,” Rahim said, “they knew exactly where to walk, how to avoid cameras... mostly.” He gestured toward the street camera footage now looping on his tablet. The clip showed the girls crossing the street, keeping perfect distance, not speaking.
 
 Too precise. Too deliberate. And too young.
 
-“They don’t look like criminals,” his partner said. “More like… students. Or office workers.”
+“They don’t look like criminals,” his partner said. “More like... students. Or office workers.”
 
 Rahim didn’t reply. The gut feeling forming in him was stranger than that. This wasn’t their plan. They were following orders.
 
@@ -32,7 +32,7 @@ By evening, the police phones were jammed with calls, half of them with false le
 
 In her apartment, Lena sat at the edge of her bed, ankle throbbing where the device dug into her skin. The news anchor’s voice echoed through the living room.
 
-“…four unidentified women believed to be involved in a mysterious cash drop last night…”
+“...four unidentified women believed to be involved in a mysterious cash drop last night.”
 
 Aida texted her in panic. *They’ve got our faces blurred, but for how long?*
 
