@@ -1,12 +1,6 @@
 ---
-Title: ""
+Title: "Chapter 13 – Sudden Genius"
 ---
-
-Got it — here’s the updated **Chapter 13** with Ramirez’s extra commentary about the writer’s “pattern” of torturing girls.
-
----
-
-## **Chapter 13 – Sudden Genius**
 
 Ramirez blinked hard, looking from the screen to her own fingers like they’d just betrayed her. “...What the hell just happened?” she muttered.
 
@@ -30,6 +24,6 @@ She turned back to the console, fingers drumming. “But whoever’s behind thos
 
 Rahim sighed, still clearly unconvinced about her “writer” rant, but he couldn’t argue with the results. “Fine. What’s our next move?”
 
-Ramirez smirked. “Next move is you and Tariq keep doing your detective thing, and I—” She jabbed a thumb at herself. “—keep playing the game until the writer gets bored of torturing me.”
+Ramirez smirked. “Next move is you and Tariq keep doing your detective thing, and I...” She jabbed a thumb at herself. “... Keep playing the game until the writer gets bored of torturing me.”
 
 Under her breath, she muttered with a sly smile, *“Which, knowing him, is never.”*
