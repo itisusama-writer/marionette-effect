@@ -217,3 +217,189 @@ Hira sent another message, her hands shaking as she typed. *I think someone foll
 Mariam didn’t text at all. She just sat staring at the blinking light on her ankle band, wondering if it was the police… or him.
 
 Somewhere across the city, the man in the luxury bungalow poured himself a drink, watching the same news coverage with a thin smile. The police were chasing ghosts. And the girls—his marionettes—were only just learning how tangled the strings really were.
+
+---
+Title: "Chapter 7 - Strings in the Sunlight"
+---
+
+The message arrived at exactly 11:45 a.m.
+
+No names, no greeting. Just a map pin and a short command.
+*Five minutes. Do not be late.*
+
+Lena’s lunch break had barely started. She glanced at the blinking band under her slacks and felt her stomach twist. Across the city, three other women were checking the same message at the same time.
+
+Aida was in a bookstore, her bag still heavy with unpaid-for paperbacks she was considering buying. She dropped them and walked out without a word.
+
+Hira left her office mid-sentence, ignoring her manager’s questions.
+
+Mariam was already on the street when the notification hit, her steps quickening without thought.
+
+By 11:50, they were each in position, scattered within the bustling city square. The sun beat down, making the air shimmer over concrete. Cars blared horns. Street vendors called out prices. No one looked at the women, yet the air around each of them felt taut, like a string pulled too tight.
+
+Another message came.
+*Walk toward the fountain. Collect the blue bag. Do not stop. Do not speak.*
+
+Lena spotted it first—a harmless-looking shopping bag slouched under a bench beside the fountain. She hesitated, then moved. Two other figures moved at the same time from different directions.
+
+Hira reached the bag first, but the instructions didn’t stop there.
+*Pass it to the woman in the red scarf. Then keep walking.*
+
+Hira’s eyes flicked up. That was Lena. Their shoulders brushed as the bag changed hands, neither of them daring to meet the other’s gaze fully. The device on their ankles pulsed warm, as if monitoring their obedience.
+
+*Red scarf, hand it to the one in the gray coat.*
+
+Lena’s heart skipped when she saw the woman in the gray coat. Mariam. She knew her by face but not by name, a distant recognition from passing on the same street weeks before.
+
+The bag moved again, smooth and silent. From Mariam’s hands, it disappeared into Aida’s.
+
+*Leave it in the trash bin by the crosswalk. Walk away.*
+
+By the time the bag was gone, they were four strangers again, melting into the crowd. But the sunlight felt sharper now, and each step carried the weight of what they’d just done.
+
+They didn’t know that Detective Rahim was already on the edge of the square, having rushed there on a vague tip from a street informant. He caught a glimpse of two women moving in opposite directions, their pace too purposeful to be casual. He snapped a photo of Lena’s retreating back, then of Aida adjusting her scarf in the distance.
+
+Half an hour later, Rahim stood over the blue bag in the police evidence room. Inside was a small glass case holding a folded note.
+
+*You are not ready for the truth yet.*
+
+Somewhere in his bungalow, the antagonist replayed the security feed from the square, his lips curling upward. Four girls in plain sight, hundreds of witnesses, and not one person realized a crime had taken place.
+
+The game had just entered daylight.
+
+---
+Title: "Chapter 8 – The First Thread"
+---
+
+Detective Rahim sat in the dim operations room, the hum of the surveillance monitors filling the silence. The footage from the city square was grainy but clear enough. Two women brushing past each other by the fountain, one in a red scarf, the other in a gray coat.
+
+He hit pause, leaning forward.
+
+“Same two women, different angles,” said his junior, Tariq, pointing to the next clip on the split screen. “Here, thirty seconds earlier, they both enter from opposite ends of the street. Their timing is too perfect.”
+
+Rahim’s eyes narrowed. “And here, right after... they don’t even look back.”
+
+He tapped the glass, marking both frames. “Run face match on the one in the red scarf. Start there. Find me everything.”
+
+It was the first tangible connection. Two women moving like pieces on a board, coordinated but silent. And Rahim knew from experience that when coincidences lined up this neatly, someone was pulling the strings.
+
+---
+
+At 3:17 PM, all four girls received the same message.
+*New task. Urgent. You have twenty minutes.*
+
+This time, there was no subtle exchange in a crowded plaza. No harmless looking bag. The instructions were blunt.
+
+*You will each enter the listed bank branch. At exactly 3:40 PM, trigger the fire alarm. Do not speak to staff. Do not take anything. Walk out.*
+
+Lena stared at the message until the letters blurred. The bank was five blocks from her office. She could feel her pulse in the ankle device.
+
+Aida’s mind spun. How was this still possible in broad daylight without being caught?
+
+Mariam’s hand trembled as she pushed open the glass door to her assigned branch, trying not to meet the eyes of the security guard.
+
+Hira’s breath came fast, shallow. Her branch was already busy with customers when she slipped inside.
+
+At precisely 3:40, all four alarms wailed in unison in four different parts of the city.
+
+Panic followed, staff shouting, customers rushing to the exits, sprinklers releasing cold sprays in two of the locations. The girls did exactly as told, walking out in the chaos, blending into the panicked crowds.
+
+By 4:15, the news cycle was already lit with headlines: **“Coordinated Bank Alarms Across City. No Theft Reported.”**
+
+The police were rattled. Why trigger alarms without a robbery? Why in multiple branches at once? And why were the security cameras, in three of the four cases, just out of focus or conveniently obstructed at the key moments?
+
+In the dark study of his bungalow, the antagonist watched the footage with satisfaction. This was the beginning of public confusion, of law enforcement chasing smoke while he built the fire.
+
+For the girls, though, the realization was colder. They weren’t just part of something strange anymore. They had now committed a public disruption, their faces possibly caught on multiple cameras, with no way to explain why.
+
+And somewhere in a police database, two of them were now tagged together under a single case file.
+
+The first thread had been found, and Rahim was going to pull.
+
+---
+Title: "Chapter 9 - Collapse"
+---
+
+The summons came quietly.
+
+A plain envelope slid under Lena’s apartment door. Another appeared at Aida’s desk while she was away for a few minutes. Both contained the same single line, typed in black ink.
+
+**“You are requested to appear for questioning at Central Police Station, 10:00 a.m.”**
+
+Neither of them slept that night.
+
+Rahim was waiting when they arrived. His voice was polite, but his eyes were sharp. He moved without hurry, offering tea, letting the silence stretch inside the sterile interview room until the air felt heavy.
+
+“You were both near the city square last Thursday,” he began, sliding still frames across the table. “Do you recognize these images?”
+
+Lena’s throat tightened. The photograph was clear enough, her red scarf visible, Aida’s profile blurred but recognizable.
+
+“I walk through there sometimes,” Lena said carefully.
+
+Aida kept her gaze fixed on the table. “I was just passing by.”
+
+Rahim leaned forward. “Passing by at the exact same moment, without speaking, then walking away in opposite directions?”
+
+The tension in the room thickened.
+
+He placed another image on the table. “And about this.”
+
+The photograph was grainier, but it caught the edge of Aida’s trousers lifting slightly as she stepped over a curb. Just enough to reveal the faint metallic curve around her ankle.
+
+Rahim tapped it. “What is that? An electronic tag? A medical device? Some kind of signal tracker?”
+
+Lena’s fingers curled tightly in her lap. Aida’s eyes flicked toward the wall clock. Neither spoke.
+
+Rahim’s tone hardened. “I have seen enough cases to know when someone is not telling me the full story.”
+
+Then it happened.
+
+Lena’s vision blurred and her head swam. Aida’s breath caught in her chest. Within seconds both of them slumped forward, knocking their cups to the floor, the tea spilling across the table.
+
+Rahim shot to his feet, calling for medics as he rushed to their side. Both girls were breathing, their pulses unsteady but present. They were not dead.
+
+Across the city, in the dim light of his study, the man in the bungalow watched their biometric readings on a screen. His fingers tapped the armrest, slow and deliberate.
+
+He had expected this moment. He had prepared for it.
+
+With a few keystrokes, he had made his point clear. They could not be questioned without him deciding when the conversation ended.
+
+He leaned back and allowed himself a small smile. “You really should not pull at the strings, detective.”
+
+---
+Title: "Chapter 10 – Strings Pulled Tighter"
+---
+
+The hospital smelled faintly of antiseptic and sleepless nights. Lena and Aida lay in separate beds, pale but awake, sipping water under the watchful eyes of uniformed officers.
+
+Rahim stood at the foot of Lena’s bed, speaking softly. “I need you to tell me what happened in there. You were fine one moment, then you both went down like a switch had been thrown.”
+
+Lena shook her head slowly. “I… don’t remember.”
+
+He turned to Aida. “You too? Nothing?”
+
+Her gaze dropped to the blanket. “It’s just a blur.”
+
+Rahim’s jaw tightened. He knew what he had seen. No seizure warning, no panic. Just an instant blackout. It was too precise to be coincidence.
+
+The second attempt came two days later. Rahim had arranged a controlled setting, no stress, just casual conversation in the station lounge. He had thought maybe the shock of the first collapse was psychological.
+
+It was not.
+
+The moment he mentioned the ankle devices, both girls went slack in their chairs, cups of tea tipping over again. Their vitals dropped but never crashed, their breathing slow and steady. Medics confirmed there was no physical injury.
+
+The pattern was clear now. Someone was doing this remotely, and whoever it was, they had no fear of being noticed.
+
+Across the city, the man in the bungalow monitored the feeds. He watched their body stats dip and level out, his finger resting lightly on a sleek black console. The “beep” command was almost silent, a simple pulse sent to the bracelets. Not enough to kill, but enough to force compliance without a word spoken.
+
+He sipped his drink, eyes never leaving the screens. The detective was getting closer, but the girls were his wall. Every time Rahim touched the wrong question, the wall dropped, and the conversation ended on his terms.
+
+He liked it that way.
+
+By the end of the week, the tension was starting to seep into the girls’ lives. They could feel the trap closing. Lena caught strangers watching her at a bus stop. Aida noticed a car slowing behind her at night. And both of them now understood something they had not dared admit before.
+
+They were never going to be allowed to talk.
+
+Not to the police. Not to each other. Not without him listening.
+
+And somewhere, they could feel him waiting for the next command to drop.
