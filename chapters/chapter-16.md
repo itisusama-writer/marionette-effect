@@ -61,3 +61,23 @@ Ramirez cracked her knuckles, grinning despite the fury still in her eyes. “Fi
 Rahim sighed, rubbing his temple. “Please, no punching the servers.”
 
 Ramirez winked. “No promises.”
+
+Ramirez had gone quiet for once. She sat slouched in the far corner of the operations room, knees pulled up, arms crossed, muttering curses under her breath that were clearly not aimed at the antagonist.
+
+“Stupid writer… sick obsession with torturing girls… first bangles, now ankle bracelets… next it’ll be collars, I swear…” She kicked at the leg of the chair. “And this fucking phone out of nowhere? Real classy. Thanks a lot, jackass.”
+
+Rahim hesitated before walking over, lowering his voice so the others couldn’t hear. “So about that phone thing…” He paused, studying her. “How did you get it?”
+
+Ramirez raised a brow, smirking. “Oh, you know. Magic courier pigeon. Don’t ask stupid questions, Detective.”
+
+Rahim didn’t smile. “And hypothetically asking… this ‘writer’ you keep mentioning. Is there actually one, or are you just being delusional?”
+
+Ramirez’s smirk faltered. For a moment, she looked almost tired. Then she leaned closer, her voice low but sharp.
+
+“I’m not a magician, Rahim. And who the hell would willingly make their life a nightmare? Obviously there’s a writer. Someone pulling the strings. Someone who enjoys watching us crawl through their little hellscape.”
+
+Rahim frowned, studying her face, searching for a crack in the sarcasm. But Ramirez just leaned back again, arms folded, returning to her corner.
+
+“Delusional or not,” she muttered, “you’ll see soon enough.”
+
+The room buzzed with faint static from the monitors, but Rahim didn’t move. He just kept staring at her, unsettled by how certain she sounded.
