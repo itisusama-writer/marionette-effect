@@ -66,7 +66,7 @@ Zayra’s fingers flew across the keyboard, a map blooming on-screen. Four red d
 
 The map zoomed in on a live feed: **Lena, Mariam, Aida, and Hira** walking through a deserted street in perfect unison.
 
-Zayra’s jaw tightened. “—he’s already using them as pawns.”
+Zayra’s jaw tightened. “he’s already using them as pawns.”
 
 Ramirez’s smirk faded for once. She leaned forward, muttering under her breath. “And the writer just can’t help himself. Bangles, bracelets, chains it’s always some twisted jewelry collection.”
 
