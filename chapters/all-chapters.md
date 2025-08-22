@@ -403,3 +403,503 @@ They were never going to be allowed to talk.
 Not to the police. Not to each other. Not without him listening.
 
 And somewhere, they could feel him waiting for the next command to drop.
+
+---
+Title: "Chapter 11 - An Unwelcome Drop-In"
+---
+
+The police operations room buzzed with low voices and the hum of machines. Monitors flickered with CCTV feeds, biometric readouts, and endless maps of the city. Rahim leaned over Tariq’s shoulder, scanning the latest collapse reports.
+
+“That’s the third time this week,” Tariq said, tapping the screen. “Two of them in broad daylight. Same pattern. Girls go unresponsive, vitals dip, then they just... come back.”
+
+Before Rahim could answer, the air near the evidence table shimmered just for a fraction of a second and a figure landed with a thud on her boots.
+
+“Fuck... not again, you writer,” Ramirez muttered, brushing herself off like she’d been thrown into the scene by an impatient hand. Her tone was somewhere between irritated and resigned.
+
+Tariq blinked. “Uh... who—?”
+
+Ramirez shot him a look. “Don’t ask. Trust me, your head will hurt.” She turned to Rahim, pointing at the files. “These girls Lena, Mariam, Aida, Hira. You’re dealing with a remote trigger system. Somebody’s got biometric control over them, and every time you poke the wrong nerve, boom, they drop.”
+
+Rahim’s brows furrowed. “And you know this how?”
+
+“Let’s just say I’ve seen it before,” Ramirez said, smirking without humor. “Different city, different year... same creepy control fetish.”
+
+She slid into a chair, pulling one of the CCTV feeds toward her. “First step... Stop chasing them like criminals. Whoever’s behind this is using them as shields. You try to corner them, you’ll just trigger another collapse.”
+
+Rahim studied her for a long moment. Something about her didn’t fit, her clothes, her presence, her blunt certainty, but right now, they didn’t have the luxury to question it.
+
+“Fine,” he said finally. “You want in, you work with me and Tariq. But you follow my lead.”
+
+Ramirez gave him a two finger salute. “Sure, Detective. Just remember when this gets ugly, it’s not me you need to worry about. It’s him.”
+
+And in the high-rise bungalow across the city, the man at the console paused mid-sip of his drink. His monitors had just picked up a new variable in his game, a name he didn’t recognize.
+
+He leaned forward, smiling faintly. “Ramirez... Let’s see how you play.”
+
+---
+Title: "Chapter 12 - Threads in the Dark"
+---
+
+The operations room was quieter now, but the tension clung to the air. The clock on the wall ticked past 11 p.m., and the only light came from the blue glow of the monitors.
+
+Ramirez sat with her boots up on the desk, flipping through digital files faster than Rahim or Tariq could follow. Names, timestamps, incident locations they scrolled across her screen in a rapid blur.
+
+“Okay,” she said, finally lowering her feet. “These collapses? They’re not random. Someone’s tracking their movement *and* their heart rates in real-time. The ankle bracelets aren’t just ornaments they’re biometric cages.”
+
+Rahim crossed his arms. “You’re saying someone is... watching them? Right now?”
+
+“Not just watching. Controlling,” Ramirez replied, tapping a map. “Look, Lena, Mariam, Aida, Hira... every time one of them comes within a certain range of a location... bam. Shutdown signal.”
+
+Tariq leaned in, frowning. “So, they’re programmed to fall if they cross a certain line? That’s... twisted.”
+
+“Yeah, well,” Ramirez muttered under her breath, *“twisted’s basically the writer’s favorite genre.”*
+
+Rahim’s brow furrowed. “Sorry, what was that?”
+
+“Nothing,” she said quickly, flashing an innocent smile. “Just talking to myself. I do that when I’m bored.”
+
+Before Rahim could press further, an alert pinged on the main console. One of the trackers lit up red, then green, then static.
+
+Tariq’s eyes widened. “Uh... that’s not supposed to happen.”
+
+Ramirez leaned forward, her smirk fading. “No, it’s not. Someone’s noticed we’re sniffing around.”
+
+Across the city, in a bunglow filled with the quiet hum of expensive electronics, the rich man behind the bracelets sat at his desk. One monitor showed his girls moving through the streets like shadows. Another displayed an active map of police digital probes.
+
+He reached over, flipped a switch, and spoke into a headset. “Our guests are trying to peek behind the curtain. Let’s make sure they know they’re not welcome.”
+
+Within seconds, the operations room’s screens glitched. Data streams warped. The map scrambled itself into nonsense.
+
+“Son of a...” Ramirez hissed, fingers flying over the keyboard. “He’s throwing us out of his system.”
+
+Rahim glanced at her. “Can you stop him?”
+
+Ramirez leaned closer to the console and whispered to herself, “If you know this writer, I can’t do this bullshit tech stuff. You should’ve sent Zureenab.”
+
+The next instant, her pupils dilated sharply. Her breathing steadied. Her fingers stopped mid-motion. Then resumed with lightning speed, moving across the keyboard like the commands were hardwired into her muscles.
+
+It wasn’t Ramirez’s style anymore.
+It was Zureenab’s.
+
+Her body remained in the chair, but her mind had shifted Zureenab was in control, operating through her.
+
+The chaotic streams of code began to align. The scrambled maps reformed. Within seconds, the police systems were not only stable, but enhanced and running faster, sharper, and more secure than before.
+
+Across the city, the rich man froze in front of his monitors. The glitching stopped but now, his feeds were being mirrored. Someone on the other side was watching *him*.
+
+“No... no, no...” he muttered, leaning forward. “That’s impossible.”
+
+Then the mirrored feed zoomed in on his own face.
+
+He slammed his fist on the desk. “WHO THE HELL IS THIS?!”
+
+Back in the operations room, Zureenab, still in Ramirez’s body allowed herself a tiny smirk. “Game on,” she murmured.
+
+Her fingers tapped one last string of code, locking the system with an encryption key only she knew. The feeds stabilized completely, and the antagonist’s access was cut off.
+
+Then she leaned back, exhaled, and muttered, “Alright... your turn, Ramirez.”
+
+Her eyes fluttered shut for a fraction of a second. When they opened again, the sharp precision in her gaze was gone replaced by Ramirez’s usual spark of chaos.
+
+Ramirez blinked, looked down at her hands, and muttered, “...What the hell just happened?”
+
+Rahim and Tariq exchanged confused glances, as if they’d just watched someone switch channels in the middle of a live broadcast.
+
+---
+Title: "Chapter 13 – Sudden Genius"
+---
+
+Ramirez blinked hard, looking from the screen to her own fingers like they’d just betrayed her. “...What the hell just happened?” she muttered.
+
+Rahim stepped closer, arms crossed. “That’s what *I’d* like to know. One minute you’re complaining about not being a tech person, the next you’re running circles around a top-tier cyber-ops network like it’s Sudoku.”
+
+Tariq leaned in too, smirking. “Yeah, you were *way* too good just now. Don’t tell me you’ve been holding out on us.”
+
+Ramirez tilted her head, eyes narrowing slightly. “Or maybe—just maybe—your friendly neighborhood writer decided to play puppet master again.”
+
+Rahim raised an eyebrow. “The *writer*?”
+
+“Yeah,” she said, pointing vaguely upward. “Big invisible sadist who loves tossing me into gunfights, foot chases, collapsing buildings, and now apparently *cyber warfare*. I swear he’s got a wheel he spins labeled ‘What nonsense can we throw at Ramirez today?’”
+
+She leaned back in her chair, smirking darkly. “And you know what else? He *loves* torturing girls. Bangles for Minahil’s story… some other twisted torture thingy for other girls… and now these ankle bracelets. Wow. Real creative theme there, boss.”
+
+Rahim and Tariq exchanged a baffled glance.
+
+Ramirez caught it and grinned wickedly. “Don’t worry, Detective. I’m fine. Just… occasionally aware of my captivity in someone’s bad habit of storytelling.”
+
+She turned back to the console, fingers drumming. “But whoever’s behind those bracelets? He just got spooked. That’s our cue to push harder before he recovers.”
+
+Rahim sighed, still clearly unconvinced about her “writer” rant, but he couldn’t argue with the results. “Fine. What’s our next move?”
+
+Ramirez smirked. “Next move is you and Tariq keep doing your detective thing, and I...” She jabbed a thumb at herself. “... Keep playing the game until the writer gets bored of torturing me.”
+
+Under her breath, she muttered with a sly smile, *“Which, knowing him, is never.”*
+
+---
+Title: "Chapter 14 - Shifting Pieces"
+---
+
+The rich man’s fingers hovered above the cracked glass of his monitor. His eyes burned as the screen stabilized, the data streams no longer scrambling under his command.
+
+Impossible.
+
+No one had ever steadied his system like that.
+
+He slammed his palm flat on the desk, the crack spreading further across the display. The hum of his private servers filled the room, stacks of machines lined up like silent soldiers, lights blinking in perfect sync.
+
+“They were supposed to drown in noise,” he whispered, voice trembling with rage. “Instead... they cut through.”
+
+His fortune had bought him invisibility. His network had given him control. And yet somewhere in that operations room—someone had answered him blow for blow.
+
+“Not cops. Not amateurs. Someone else is in the game.”
+
+He leaned back in his chair, watching the static-riddled camera feeds like a gambler staring down a rigged deck. The thought made him both furious and exhilarated.
+
+“Then let’s test their limits.”
+
+He tapped a command.
+
+One of the monitors flickered, showing Lena and Mariam standing blank-eyed in a corridor, waiting. The man smiled, his calm mask returning.
+
+“Go,” he whispered. “Let’s see how long they survive with me watching.”
+
+---
+
+**Back in the Operations Room – Night**
+
+The monitors were finally stable again. Rahim and Tariq were still reeling, trying to make sense of what had just happened, while Ramirez leaned back in her chair, arms crossed, wearing that smirk that screamed she knew more than she was admitting.
+
+And then—
+the door opened.
+
+A girl stepped inside, her presence almost cutting through the exhaustion that hung in the room.
+
+**Zayra.**
+
+Dark waves of hair framed her face, her gold necklace catching the harsh monitor light as if it belonged there. Her eyes held a mix of sharp intelligence and quiet caution, like she was already piecing together a puzzle none of them could see yet.
+
+Rahim turned, frowning. “Who are you?”
+
+Before Zayra could answer, Ramirez whistled low.
+
+“Well, damn. You look quite beautiful,” she said, openly appraising her. Ramirez looked at her like she already knew her. “So the writer decided to use you in this story. Nice... but be careful, babes. He’s crazy.”
+
+Rahim blinked, confused again. “The writer? Are we still on that?”
+
+Ramirez ignored him, leaning forward with a grin. “So, Zayra, right? Welcome to the madhouse. You might want to sit down before this circus gets worse.”
+
+Zayra raised an eyebrow but didn’t flinch. Instead, she stepped closer to the table, her gaze moving from Rahim to Tariq, then finally to the screens still glowing with strange codes.
+
+“If you want me to sit,” she said calmly, “then someone better explain why four college girls are collapsing in perfect unison across the city.”
+
+Rahim froze, exchanging a look with Tariq.
+
+Ramirez’s smirk widened. “Oh, I like her already.”
+
+---
+Title: "Chapter 15 - Pieces on the Board" 
+---
+
+**Underground Facility – Night**
+
+The rich man’s private chamber glowed with the hum of servers. Code danced across his screens in jagged green lines, his fingers tapping rhythmically as if he were conducting an orchestra no one else could hear.
+
+On the other side of a one-way glass wall, **Lena, Mariam, Aida, and Hira** stood silently. Their eyes were wide open, but empty. Their posture relaxed, almost delicate, yet their bangled ankles pulsed in eerie synchronization, tiny blue sparks running through the metal like veins of fire.
+
+The man leaned closer to the glass, smiling faintly.
+
+“You four are not just soldiers,” he whispered. “You are signals. Noise. Bait.”
+
+He tapped a command. On one of the screens, a schematic appeared—an intricate network of signals branching across the city. At the heart of it was an overlay the police had intercepted earlier. He chuckled softly.
+
+“They think they cracked my cage. They think they understand the bracelets.”
+
+He pointed to the girls.
+
+“But what they have… is version one. Outdated. Disposable. What I hold now” his smile widened, “... Is evolution.”
+
+The bracelets on the girls’ ankles glowed brighter. Their breathing slowed, then matched each other’s perfectly, a single rhythm drawn from a single source.
+
+The man turned away, satisfied. “Let’s see if Rahim and his new guest survive round two.”
+
+---
+
+**Operations Room – Police HQ**
+
+Screens blinked alive with fresh data. Rahim leaned over the console, Tariq beside him, Ramirez sprawled in her usual half-slouch, boots tapping against the desk.
+
+“Okay, good news,” Tariq announced, scrolling through reports. “The collapse triggers... They’re inactive now. The bracelets we studied? Shut down. No new spikes in the last twenty-four hours.”
+
+Rahim exhaled slowly, relief softening his shoulders. “Finally. Some breathing room.”
+
+Ramirez tilted her head, squinting at the screen. “Or...” she dragged the word out, “...it’s the part in the horror movie where the killer pretends to be dead before jumping out with a chainsaw.”
+
+Tariq blinked. “Do you always...”
+
+“Yes,” she cut him off, smirking.
+
+Before Rahim could intervene, the door opened again. Zayra walked in, her laptop already under her arm, eyes sharp and focused.
+
+Rahim gave her a brief nod of acknowledgment. “Back so soon?”
+
+“Didn’t leave,” Zayra replied evenly, sliding into a chair. “I’ve been running sweeps from the side room. And you’re not going to like what I found.”
+
+She placed her laptop down like a blade being unsheathed, the screen flashing to life with cascading code. Cyber defense and system forensics. Your problem isn’t solved it’s just shifted.”
+
+Ramirez raised a brow, leaning back in her chair. “Back again with that ‘I know everything’ face, huh? Great, just what this circus needed another genius who actually knows what she’s doing.”
+
+Zayra froze, confused for a second. “...Excuse me?”
+
+Rahim sighed. “Don’t mind her. She does that.”
+
+Ramirez grinned, unbothered.
+
+Zayra adjusted her glasses, focusing back on her code. “The system you cracked yesterday? It was a decoy. A fake shell to keep you busy. The bracelets you studied are not the ones active right now.”
+
+Rahim’s relief vanished. “Then what are we dealing with?”
+
+Zayra’s fingers flew across the keyboard, a map blooming on-screen. Four red dots pulsed in sync.
+
+“Version two,” she said flatly. “More advanced. Stronger encryption. And.”
+
+The map zoomed in on a live feed: **Lena, Mariam, Aida, and Hira** walking through a deserted street in perfect unison.
+
+Zayra’s jaw tightened. “he’s already using them as pawns.”
+
+Ramirez’s smirk faded for once. She leaned forward, muttering under her breath. “And the writer just can’t help himself. Bangles, bracelets, chains it’s always some twisted jewelry collection.”
+
+Rahim ignored her this time. His voice was grim. “Then it’s not just about stopping the control. It’s about saving the girls before he burns them out completely.”
+
+The room fell silent except for the hum of machines.
+
+The board had been set.
+The pieces were moving.
+And the game had only just begun.
+
+# **Chapter 16 – The Threat in Her Pocket**
+
+**HQ – Late Night**
+
+The hum of machines was steady, the monitors still glowing faintly with maps and endless scrolling lines of code. Rahim was leaning over Tariq’s shoulder, muttering something about cross-checking data points, when a sharp **ding** broke the rhythm.
+
+Ramirez frowned. She dug into her jacket pocket, pulling out a phone she didn’t even remember owning until now. Sleek, black, screen still warm like it had just been manufactured.
+
+“Oh, perfect,” she muttered. “Thanks, writer. You drop me in the middle of another timeline, forget to give me a decent coffee, but hey at least I get a shiny new phone out of nowhere.”
+
+The screen lit up. One message.
+
+**“We see you. Stop digging, or you’ll collapse like the rest.”**
+
+Ramirez froze.
+
+Then her eyes widened, her voice raising half an octave. “...The fuck is THIS?!” She shoved the phone up for everyone to see, practically shaking it. “Who the hell sends *me* a threat text on a phone I didn’t even know I had five minutes ago?!”
+
+Rahim blinked, confused. “Wait, what do you mean ‘you didn’t know you had’”
+
+“Oh don’t you start!” Ramirez cut him off, pacing in tight circles. “This is the writer again. I swear, he’s in love with torturing girls. Bangles for Minahil, bracelets for these four, and now creepy midnight text messages for *me*.” She jabbed the phone with her finger. “Like seriously, this is harassment by plot device!”
+
+Tariq looked at Rahim, then at Zayra. “...She’s lost it, hasn’t she?”
+
+“Not lost,” Zayra said evenly, already typing furiously on her laptop. “Just... redirected.”
+
+“Redirected into what?” Rahim asked.
+
+Zayra didn’t look up. “Into trying to murder the writer.” She pumped Ramirez.
+
+“DAMN RIGHT I AM!” Ramirez barked, her boots slamming against the floor as she stomped toward the door. “This son of a bitch thinks he can threaten me? I’m gonna find him, drag him out of whatever twisted desk he’s hiding behind, and...”
+
+“Ramirez!” Rahim snapped. “Focus!”
+
+She froze, glaring at him like a wild animal caught in headlights. Then she sighed, dropped the phone onto the table, and muttered, “Fine. But I still hate him.”
+
+The screen was still glowing. The message pulsed faintly, almost like it was alive.
+
+Zayra studied it, her voice calm. “This isn’t just a threat. It’s a signal. He’s piggybacking through the device itself GPS, biometric sensor, the works. He wanted us to know he can see us. All of us.”
+
+Rahim’s jaw tightened. “So he’s watching.”
+
+“And waiting for us to make the wrong move,” Zayra finished.
+
+Ramirez leaned over the table, tapping the glass of the phone with one finger, her face twisted between rage and fear.
+
+“Good,” she growled. “Because when I find him? He’s not getting a warning text back. He’s getting me.”
+
+The room went quiet.
+
+Then Zayra broke it, her tone sharp and steady. “Forget the phone. If he’s watching, we turn that into an advantage. We make him think he’s in control, while we follow the trail back to his core system.”
+
+Rahim nodded slowly. “A counter trap.”
+
+Tariq leaned forward, nervous. “But if he knows we’re baiting him”
+
+“Then we adapt,” Zayra cut in. Her fingers were already flying over her keyboard, rerouting signals. “He’s powerful, but no system is unbreakable. We just have to hit him before he pulls the plug on the girls.”
+
+Ramirez cracked her knuckles, grinning despite the fury still in her eyes. “Finally. Something I can punch.”
+
+Rahim sighed, rubbing his temple. “Please, no punching the servers.”
+
+Ramirez winked. “No promises.”
+
+Ramirez had gone quiet for once. She sat slouched in the far corner of the operations room, knees pulled up, arms crossed, muttering curses under her breath that were clearly not aimed at the antagonist.
+
+“Stupid writer… sick obsession with torturing girls… first bangles, now ankle bracelets… next it’ll be collars, I swear…” She kicked at the leg of the chair. “And this fucking phone out of nowhere? Real classy. Thanks a lot, jackass.”
+
+Rahim hesitated before walking over, lowering his voice so the others couldn’t hear. “So about that phone thing…” He paused, studying her. “How did you get it?”
+
+Ramirez raised a brow, smirking. “Oh, you know. Magic courier pigeon. Don’t ask stupid questions, Detective.”
+
+Rahim didn’t smile. “And hypothetically asking… this ‘writer’ you keep mentioning. Is there actually one, or are you just being delusional?”
+
+Ramirez’s smirk faltered. For a moment, she looked almost tired. Then she leaned closer, her voice low but sharp.
+
+“I’m not a magician, Rahim. And who the hell would willingly make their life a nightmare? Obviously there’s a writer. Someone pulling the strings. Someone who enjoys watching us crawl through their little hellscape.”
+
+Rahim frowned, studying her face, searching for a crack in the sarcasm. But Ramirez just leaned back again, arms folded, returning to her corner.
+
+“Delusional or not,” she muttered, “you’ll see soon enough.”
+
+The room buzzed with faint static from the monitors, but Rahim didn’t move. He just kept staring at her, unsettled by how certain she sounded.
+
+---
+Title: "Chapter 17 - The Bait"
+---
+
+The operations room looked like someone had turned paranoia into a blueprint.
+
+Screens glowed with maps, schematics, and scrolling lines of code. Wires ran across desks in messy tangles, the smell of burnt coffee clinging to the air. Rahim stood over the central display, his jaw set, his eyes heavy.
+
+Zayra typed fast, a dozen windows opening and closing in quick succession. “Alright, if we want him to bite, we need to make it look sloppy. Just enough breadcrumbs to tempt him.”
+
+Tariq glanced up. “Breadcrumbs?”
+
+“Fake signals,” she explained. “Ghost activity. A pattern that screams *weak point,* but isn’t real.”
+
+Ramirez leaned back in her chair, arms crossed, boots tapping on the table. “Translation: we’re catfishing a lunatic with ankle bracelets.”
+
+Zayra smirked. “Pretty much.”
+
+Rahim didn’t laugh. “And when he comes sniffing?”
+
+“We catch him trying to catch us,” Zayra replied, fingers still flying.
+
+Ramirez muttered under her breath, *“The writer really loves this crap. Jewelry guy. What’s next, cursed collars or earings?”*
+
+Tariq shot her a confused look. “What?”
+
+“Nothing,” Ramirez said quickly, flashing a fake smile. “Just making conversation.”
+
+Rahim narrowed his eyes but didn’t press. Not here. Not now. Still, the way she said it like she was talking to someone *else* stuck with him. He tucked it away in silence, a private suspicion he wasn’t ready to share.
+
+On the monitors, the fake signal pulsed alive.
+
+Zayra sat back, satisfied. “There. Let’s see if he takes the bait.”
+
+The room went still, waiting.
+
+And somewhere in the city, a pair of eyes were already watching.
+
+The fake signal blinked steady on the operations room screen, like a heartbeat waiting to be noticed.
+
+Rahim folded his arms. “Now we wait.”
+
+Ramirez sighed loudly. “Cool. Love waiting. Love being bait. This writer really spoils me.” She leaned back farther, chair creaking, muttering curses under her breath that Rahim pretended not to hear.
+
+Zayra ignored her, eyes glued to the monitors. Tariq looked like he wanted to throw up.
+
+And then...
+
+---
+
+**Elsewhere in the city.**
+
+The rich man’s chamber hummed with cold machinery. Rows of monitors flickered in the darkness, his empire mapped out in glowing grids.
+
+And then it appeared.
+
+A new signal.
+
+Pulsing. Vulnerable. Just begging to be touched.
+
+His lips curled into a grin. “Ah... so they think they can dangle a thread in my web.”
+
+He leaned forward, fingers brushing across his controls. For a moment, the light of the monitors cut sharp lines across his face, highlighting the hunger in his eyes.
+
+“Sloppy. Too obvious. But tempting enough to taste.”
+
+He tapped a key, sending a probe across the network. Lines of code rushed like hunting dogs, sniffing for weakness.
+
+For the first time in hours, his blood thrilled. Someone had challenged him.
+
+And if they wanted a game... he’d play.
+
+He activated the command line, his voice low and deliberate.
+
+“Deploy Lena. Mariam. Aida. Hira.”
+
+On another screen, four dots lit up on the city grid. His girls his pieces.
+
+“They think they’re hunters. Let’s remind them who built the cage.”
+
+The monitors glowed brighter as the system responded, the air in the chamber vibrating faintly with signal echoes.
+
+And somewhere, far away, the trap the police thought was theirs... had already become his.
+
+---
+Title: "Chapter 18 - Pieces on the Board"
+---
+
+The operations room buzzed with static. Lines of code blurred, alarms pinged, and the false signal that Zayra had planted suddenly flared red.
+
+Tariq’s hands flew over his keyboard. “Uh, guys? Something’s wrong. He didn’t just take the bait he hijacked it!”
+
+Before Rahim could respond, the lights flickered. Then, the security feeds came alive with movement.
+
+Four figures.
+
+Lena. Mariam. Aida. Hira.
+
+Their blank eyes glowed faintly in the camera haze, each one wearing the cursed ankle bracelets pulsing in sync. They moved like shadows cutting through the street outside HQ swift, mechanical, unstoppable.
+
+“They’re here,” Zayra whispered.
+
+A loud crash split the silence. A window shattered, shards scattering across the floor. Ramirez spun, instincts kicking in, her gun already drawn.
+
+“Aw, hell no,” she barked. “Not again. Writer, I swear.”
+
+The first to lunge through was Lena, her face pale, movements rigid as a puppet. She charged straight at Ramirez with frightening speed.
+
+Ramirez blocked the hit, shoved her back, but another figure was already on her Mariam, fists swinging like pistons. Ramirez ducked one, caught another across the shoulder, and staggered.
+
+“Goddammit, these kids hit harder than rookies on steroids!” she shouted, driving an elbow into Mariam’s side.
+
+The girl didn’t flinch. Didn’t even blink.
+
+Rahim and Tariq tried to hold the door as Aida and Hira pushed through, their blank stares fixed on the room.
+
+Zayra snapped orders. “Don’t hurt them! They’re not in control!”
+
+Ramirez snarled, tossing Mariam across the table. “Oh, I’ll control them, alright. With my fists!”
+
+Zayra grabbed her arm mid-swing. “They are *young girls,* Ramirez! Are you serious?!”
+
+For a split second, Ramirez froze, fist trembling in the air, eyes blazing with fury and confusion.
+
+The girls advanced again, their bracelets glowing brighter, their bodies jerking like marionettes pulled too tight.
+
+Rahim fired a warning shot into the ceiling. “We need to contain them, not kill them!”
+
+“Contain them?!” Ramirez shouted, shoving Lena back against a wall. “They’re trying to rearrange my face, Detective!”
+
+Zayra crouched by a console, her fingers flying. “I can jam the signal temporarily but I need thirty seconds!”
+
+“Thirty seconds?” Ramirez grunted, ducking under a wild swing. “Lady, I don’t even think we have ten!”
+
+The room was chaos metal clanging, furniture toppling, the sound of young voices grunting under a power that wasn’t their own.
+
+And above it all, Ramirez’s voice roared:
+
+“WHEN I FIND THAT RICH BASTARD I SWEAR I’M GONNA SHOVE HIS BRACELETS UP HIS”
+
+“Ramirez!” Rahim cut her off again, pushing Hira away. “Focus!”
+
+The fight raged on, every second dragging closer to collapse, as the girls innocent pawns in someone else’s game closed in.
