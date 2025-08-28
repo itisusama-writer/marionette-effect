@@ -2,4 +2,6 @@ Lena and Mariam
 Aida and Hira
 Detective Rahim, Tariq
 
-Zayra
+Zayra, Ramirez, Zureenab
+
+Ashraf (Villain)
